@@ -1,4 +1,4 @@
-# 
+# advanced nft wash trading bot | price-impact-analysis + multi-chain-support is the best nft wash trading bot, featuring price-impact-analysis and multi-chain-support. Fast, smart,
 
 
 
